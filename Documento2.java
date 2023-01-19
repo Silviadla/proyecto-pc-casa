@@ -1,1 +1,1 @@
-Adiós, me voy.
+Adiós, me voy a comprar.
