@@ -1,1 +1,1 @@
-Adiós.
+Adiós, me voy.
